@@ -1,4 +1,4 @@
-## Accelerated Negotiation
+## Accelerated Negotiation is the entire purpose of the Salebarn organization.
 
 Auctioneering allows for a group of ***knowledgeable QUALIFIED bidders*** who are interested in an item [because they work or do business in the product industry] and have the ability to complete a transaction, ie have funds to pay for what they are bidding on ... to RAPIDLY determine the fair market value of an item.
 
