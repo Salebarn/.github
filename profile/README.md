@@ -1,5 +1,7 @@
-## Focused upon ACCELERATING new business
+# Accelerating the negotiation is what Salebarn is about.
 
-Businesses have an arc ... growth is all about accelerating the improvement in processes that involve exploring new markets, finding new customers and generally better meeting needs and developing NEW business to expand and grow the entire range of your business. 
+The SECRET SAUCE of social media is the USER ... or the interactions between USERs ... the interactions are the basis of accelerated negotiation ... not just search, but closing deals, fulfilling orders, ensuring that customers were genuinely satisfied and finding out what to do better next time.
 
-***If your business process are not improving, growing and improving upon the general ability to grow and further improve, then your business is sick and probably dying.***
+# Reputation improvement is what accelerated negotiation is all about. 
+
+Social media biz gets it blatantly wrong by imagining that USER data is the product ... it's as bad as old, antiquated livestock auctions that imagine it's all about getting the highest bid for the animals that were trucked to a disease exchange so that they could be in front of idiot bidders ... the accelerated negotiation is not about fast talking -- it's about rapidly making things better to improve and solidify reputations with constantly improving quality.
